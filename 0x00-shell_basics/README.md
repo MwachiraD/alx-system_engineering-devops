@@ -1,1 +1,1 @@
-where am i
+null and void
